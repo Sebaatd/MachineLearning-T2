@@ -9,6 +9,6 @@ Integrantes:
 
 # Links Videos
 
-Online: https://youtu.be/_3BcEaMK1C8
+Online: https://www.youtube.com/playlist?list=PLXAE5MFqp5HD7DbQ4xAb3c6PuQTO8I_Z5
 
 Descarga: https://drive.google.com/file/d/1268f4CQc_Wb3x6hxLqDW0VtR8ED0pHA3/view?usp=sharing
